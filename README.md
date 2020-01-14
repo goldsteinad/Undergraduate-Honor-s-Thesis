@@ -1,1 +1,1 @@
-# Undergraduate-Honor-s-Thesis
+# Undergraduate-Honors-Thesis
